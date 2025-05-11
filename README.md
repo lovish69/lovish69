@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Devops projects<br>I’m currently learning Devops tools<br>How to reach me lovishbarber69@gmail.com<br>Passionate about new technologies
+🔭 I'm currently working on Devops projects<br>🌱 I’m currently learning Devops tools<br>How to reach me lovishbarber69@gmail.com<br>⚡Passionate about new technologies
 
 
 ## 🌐 Socials:
